@@ -1,0 +1,4 @@
+- 👋 Salut, je suis Legend
+- 👀 J'aime tout ce qui est du domaine gaming, spatiale
+- 🌱 J'apprends actuellement l'allemend, l'italien, le japonais et l'anglais
+- 💞️ Nono et Lola, mes sisters
